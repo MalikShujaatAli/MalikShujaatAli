@@ -1,4 +1,4 @@
-I'm a driven coder passionate about continuous growth in the tech industry. Collaboration opportunities are welcome, yet I find equal fulfillment in individual endeavors. My focus lies in refining skills and delivering innovative solutions. If you're keen on exploring project possibilities or discussing tech ventures, I'm eager to connect. 
+I am a driven coder passionate about continuous growth in the tech industry. Collaboration opportunities are welcome, yet I find equal fulfillment in individual endeavors. My focus lies in refining skills and delivering innovative solutions. If you're keen on exploring project possibilities or discussing tech ventures, I'm eager to connect. 
 
 
 ## 🌐 Socials:
